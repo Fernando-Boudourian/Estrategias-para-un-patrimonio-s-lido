@@ -1,1 +1,2 @@
 # Estrategias-para-un-patrimonio-s-lido
+Hedge funds y private equity son herramientas clave en la gestión moderna del patrimonio. Los hedge funds ofrecen flexibilidad y estrategias dinámicas, ideales para objetivos de corto y mediano plazo. Por otro lado, el private equity se centra en el crecimiento sostenible invirtiendo en empresas privadas. Juntas, estas opciones equilibran la preservación del capital con el crecimiento intergeneracional.
